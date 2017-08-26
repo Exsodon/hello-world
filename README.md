@@ -1,4 +1,3 @@
-# hello-world
-Just another repository
+# Muy buenas a todos 
 
-Hello everyone today I create a new accoutn on this plattform and I was very happy to start here 
+soys unos maricos los que lean esto por que lo digo yo .
